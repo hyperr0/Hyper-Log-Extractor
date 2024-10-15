@@ -1,1 +1,1 @@
-![image](https://github.com/hyperr0/Hyper-Log-Extractor/assets/141940034/cea3be1d-3b5b-4b2b-ad08-9d195b8a2dcf)
+![image](https://media.discordapp.net/attachments/1252998461784068187/1295819672091885618/image.png?ex=6710099c&is=670eb81c&hm=9daf5c4da35a1aea1c662c3cc8d5538d4b0807e5fbd23d7c3c4b74280eba8d7a&=&format=webp&quality=lossless&width=695&height=356)
